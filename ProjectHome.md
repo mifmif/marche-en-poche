@@ -1,0 +1,2 @@
+Vous n'avez plus besoin de passer une heure de shopping dans le super-marché ou perdre votre temps a chercher un produit que vous n'avez pas situé son emplacement, maintenant , tous les super-marché du Maroc sont dans votre poche.
+Il vous suffit d'effectuer votre commande depuis votre mobile et les agents du super-marché vont s'occuper du shopping ,il vous suffit alors juste d'aller prendre votre commande et les payer sur place .
